@@ -39,4 +39,5 @@ The tray section will only have 3 layers of acrylic which are held together by t
 
 Now push the silicone T-plugs through all the tray holes from bottom until they snap into place.
 
-<img src="https://i.imgur.com/bGj2vWB.jpeg" width="350">
+<img src="https://i.imgur.com/1Wh2tQm.jpeg" width="350">
+<img src="https://i.imgur.com/J4jXkJO.jpeg" width="350">
